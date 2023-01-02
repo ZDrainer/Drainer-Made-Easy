@@ -3,3 +3,4 @@
 <p>what do we mean by good and bad project? </p>
 <p><span style="color: #00ff00;"><br />Good Project: Lots Of Holders High Floor Price Solid Twitter Account ( Not Booted )</span></p>
 <p><span style="color: #ff0000;">Bad Project: Overly Spammed Projects Like BAYC , RTFKT , Moonbirds and etc booted projects ( booted twitter followers and etc ) <br /><br />You can find some options in the opensea.io Trending tab:</span><img src="https://media.discordapp.net/attachments/1059470467083288579/1059470724496113704/Screenshot_2023-01-02_at_19.28.18.png?width=2268&amp;height=552" alt="" /></p>
+
